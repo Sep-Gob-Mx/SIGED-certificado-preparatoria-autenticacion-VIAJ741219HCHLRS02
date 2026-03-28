@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VIAJ741219HCHLRS02
+VIAJ741219HCHLRS02
